@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @BNNBPRINCE
+- 👋 Hi, I’m @BNBPRINCE
 - 👀 I’m NEWEST PROJECT LAUNCHED ON BSC NETWORK
 - 🌱 I GIVE Each holder 10%of SHIB from each transaction
 - 💞️ we want to be build by community as community project
